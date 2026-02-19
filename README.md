@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAAJ920113HBCLRL04
+MAAJ920113HBCLRL04
